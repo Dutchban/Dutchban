@@ -7,4 +7,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything related to AI
 - 📫 How to reach me: https://www.linkedin.com/in/mayerdanielprivacy/
 - ⚡ Fun fact: The Firefox logo isn’t a fox. This cute furry creature is a red panda!
--->
